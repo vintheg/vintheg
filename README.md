@@ -1,4 +1,4 @@
-![Alt Text](IMG_2790.jpg)
+![Alt Text](cover_1.jpeg)
 
 
 ![Alt Text](github_interests.gif)
